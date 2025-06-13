@@ -17,3 +17,4 @@ facebook hakkı duran
 ınstegram hakkı duran3
 ınstegram elitkonut
 tiktok yalnızadam3455
+youtube Bor tv
