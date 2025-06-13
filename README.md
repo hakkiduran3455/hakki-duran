@@ -1,4 +1,4 @@
-hakkı-duran
+hakkı duran
 hakkı duran iş insanı girişimci
 doğum yeri samsun bafra dogum tarihi 02.01.1970  
 baba adı bayram anne adı ezine 
